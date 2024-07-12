@@ -1,0 +1,1 @@
+# first-principles-publishing-take-home
